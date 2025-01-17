@@ -1,1 +1,0 @@
-# spartancmd.github.io
